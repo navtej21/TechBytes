@@ -1,5 +1,5 @@
 
-# ✨🌸|HarmonyHub✨🌸
+# ✨🌸HarmonyHub✨🌸
 
 ## About The Project
 
